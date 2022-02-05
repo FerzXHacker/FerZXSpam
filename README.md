@@ -1,0 +1,2 @@
+# FerZXSpam
+Cocok Buat BUAT JAHILI TEMEN
